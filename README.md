@@ -1,1 +1,1 @@
-amba
+Fitur ambangawi 67
